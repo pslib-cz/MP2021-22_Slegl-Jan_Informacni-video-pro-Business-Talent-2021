@@ -1,0 +1,1 @@
+# MP2021-22_Slegl-Jan_Informacni-video-pro-Business-Talent-2021
